@@ -6,7 +6,7 @@ Old version(Turkish):
 
 
 
-![image](https://user-images.githubusercontent.com/49405383/203793724-208629fd-53bf-4bee-9e01-8c88e115c5b1.png)
+![image](https://user-images.githubusercontent.com/49405383/203794387-8a0b2687-4cd8-4a3f-86e0-3a85e508475e.png)
 
 
 
